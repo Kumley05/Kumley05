@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Naveen Kumar M
-- 🧪Interested in Automation
+- 🧪Interested
   
 
 <!---
